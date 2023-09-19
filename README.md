@@ -1,4 +1,11 @@
-### Hi there 👋
+TheMordent
+Fakebit music, scawy films and pixel artist
+
+~Proud supporter of Wumbology~
+Joined 9/19/2023
+
+
+<!--hello-->
 
 <!--
 **TheMordent/TheMordent** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
