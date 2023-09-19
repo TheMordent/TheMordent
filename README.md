@@ -1,7 +1,7 @@
 TheMordent
 Fakebit music, scawy films and pixel artist
 
-~Proud supporter of Wumbology~
+Proud supporter of Wumbology
 Joined 9/19/2023
 
 
